@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @Ss777xx
-- 👀 I’m interested in ... knowledge passion making the people around more intellectual and humanities creatures Seekers
-
-# ✨ Welcome to My Creative Coding Realm! 🚀  
+# ✨ Welcome to My DarkSs! 🚀  
 **Hey there, I'm Ss777xx!** 👋  
 I transform coffee into code and ideas into digital masterpieces. Welcome to my universe of innovation and creativity!
 
